@@ -1,10 +1,10 @@
 ## First Cycle
 
 > El is one, are all\
-> Their world worlds is a paradox\
+> Their world is a paradox\
 > All loved, one favored
 
-> Blessed be human\
+> Blessed be humans\
 > Born to rise and born to fall\
 > Suffering to unify
 
@@ -47,7 +47,7 @@
 
 ## Fifth Cycle
 
-> Unity of land long gone\
+> Unity long gone\
 > Security of all came\
 > With the portal's light
 
